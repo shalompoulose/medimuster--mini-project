@@ -1,1 +1,0 @@
-# medimuster--mini-project
